@@ -1,2 +1,2 @@
-# Jeena-Maharjan
+# Jeena_Maharjan
 Interior Designer
