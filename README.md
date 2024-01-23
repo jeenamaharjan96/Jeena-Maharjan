@@ -1,4 +1,3 @@
-# Jeena Maharjan
 Interior Designer
 
 jeenamaharjan96@gmail.com
